@@ -1,1 +1,0 @@
-# TechStock
